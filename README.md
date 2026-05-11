@@ -1,2 +1,2 @@
-# -Desigualdad-Clim-tica-en-Am-rica-Latina
+# -Desigualdad-Climatica-en-America-Latina
  Desigualdad Climática en América Latina
